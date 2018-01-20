@@ -1,3 +1,0 @@
-
-Noting :
-       (1) You must have product secret key.
