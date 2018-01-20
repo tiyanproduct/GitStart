@@ -1,5 +1,4 @@
 I miss you!
-I miss you!
 I love you!
 I want you!
 I hate you!
